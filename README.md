@@ -6,4 +6,4 @@ VIDEO LINK: https://drive.google.com/file/d/1i2_dlO75jAz5j3ct1Bjb88mQyu5N2XMl/vi
 
 NEURAL NETWORK ASSIGNMENT 2
 DONE BY : PRANAY PAUL THIRUMALA REDDY
-VIDEO LINK:
+VIDEO LINK:https://drive.google.com/file/d/1azMTQcSv3KaFDWSXaa1KO4yfXRHj46X7/view?usp=sharing
