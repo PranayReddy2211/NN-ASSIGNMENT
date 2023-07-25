@@ -11,4 +11,4 @@ VIDEO LINK:https://drive.google.com/file/d/1azMTQcSv3KaFDWSXaa1KO4yfXRHj46X7/vie
 
 NEURAL NETWORK ASSIGNMENT 3
 DONE BY : PRANAY PAUL THIRUMALA REDDY
-VIDEO LINK:
+VIDEO LINK:https://drive.google.com/file/d/1jx62SpoK92vs2ppJx652GgzV6SEHa7hv/view?usp=sharing
